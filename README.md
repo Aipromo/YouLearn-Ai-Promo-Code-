@@ -1,14 +1,11 @@
-# **🚀 YouLearn Ai Coupon Code 65% OFF Discount Code (100% Working) 🧠✨**  
+# YouLearn Ai Coupon Code 65% OFF Discount Code RKH5EN5G (100% Working) 
 
-## **🌟 Welcome to the Future of Education – Powered by AI!**  
+# Use Promo Code RKH5EN5G for an Exclusive Discount!
 
 In a world where knowledge evolves at lightning speed, traditional learning methods struggle to keep up. That’s where **YouLearn AI** comes in – a groundbreaking **AI-powered learning platform** designed to make education **smarter, faster, and more personalized** than ever before! Whether you're a student, professional, or just curious, YouLearn AI adapts to your learning style, helping you master any subject with ease.  
 
-<a href="https://app.youlearn.ai/?via=muhammad-bilal">
-  <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
-</a>
 
-🎯 **Use Promo Code RKH5EN5G for an Exclusive Discount!** 🎯  
+# Use Promo Code RKH5EN5G for an Exclusive Discount!
 
 ---  
 
@@ -19,6 +16,8 @@ In a world where knowledge evolves at lightning speed, traditional learning meth
 
 ### **✅ Personalized Learning Like Never Before**  
 No two learners are the same, so why should education be one-size-fits-all? YouLearn AI uses **advanced machine learning** to analyze your strengths, weaknesses, and preferences, delivering a **custom-tailored learning experience** just for you.  
+
+# # Use Promo Code RKH5EN5G for an Exclusive Discount!
 
 ### **✅ Instant AI Tutoring – 24/7 Support!**  
 Stuck on a problem? Need clarification at 2 AM? YouLearn AI’s **real-time AI tutor** provides instant explanations, step-by-step solutions, and even generates practice questions to reinforce your understanding.  
@@ -31,6 +30,8 @@ Forget boring textbooks! YouLearn AI makes learning **fun** with:
 - **Gamified quizzes & challenges 🎮**  
 - **Voice-assisted learning 🎙️** (perfect for hands-free study)  
 - **Interactive simulations & visual aids 📊**  
+
+# Use Promo Code RKH5EN5G for an Exclusive Discount!
 
 ### **✅ Smart Progress Tracking & Analytics**  
 Track your improvement with **AI-powered insights**, performance dashboards, and personalized recommendations to keep you motivated and on track.  
